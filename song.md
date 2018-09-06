@@ -1,3 +1,3 @@
 
 
-Then came the sun that dred up all the rain
+Then came the sun that dried up all the rain
